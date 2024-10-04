@@ -38,7 +38,7 @@ As I continue my studies, I'm particularly interested in learning more about **A
 ## 📫 How to Reach Me
 
 Feel free to connect with me through the following platforms:
-- LinkedIn: [Your LinkedIn](https://www.linkedin.com)
-- Email: juancarlos@example.com
+- [LinkedIn](https://www.linkedin.com)
+- Email: jcflobe@gmail.com
 
 Thank you for visiting my profile! I'm always open to new opportunities and collaborations, so don't hesitate to reach out.
